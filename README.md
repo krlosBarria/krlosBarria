@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hola Soy Carlos Barría Valdevenito 🤘🤘🤘
+![81idocF7Z+L _AC_SX679_](https://github.com/user-attachments/assets/7a2931a3-b66a-43e5-bee5-2c8c66b6e665)
 
 <!--
 **krlosBarria/krlosBarria** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
